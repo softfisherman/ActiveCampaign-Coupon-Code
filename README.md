@@ -6,7 +6,7 @@
 
 ## Table of Contents
 - [Why Choose ActiveCampaign?](#why-choose-activecampaign)
-- [What's the 2024 ActiveCampaign Coupon Code?](#2025-activecampaign-coupon-code)
+- [What's the 2025 ActiveCampaign Coupon Code?](#2025-activecampaign-coupon-code)
 - [5 Core Benefits of Using Coupon](#5-core-benefits)
 - [How to Apply ActiveCampaign Coupon?](#how-to-apply)
 - [Ideal Business Use Cases](#ideal-business-use-cases)
@@ -29,7 +29,7 @@ Trusted by 180,000+ businesses globally, ActiveCampaign offers through our coupo
 
 ---
 
-## What's the 2024 ActiveCampaign Coupon Code?
+## What's the 2025 ActiveCampaign Coupon Code?
 Exclusive code: **ACVIP2024** (auto-activated via our link), including:
 
 🔥 **14-Day Premium Trial** - $299/mo Plus plan at $0  
