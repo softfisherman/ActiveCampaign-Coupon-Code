@@ -30,7 +30,7 @@ Trusted by 180,000+ businesses globally, ActiveCampaign offers through our coupo
 ---
 
 ## What's the 2025 ActiveCampaign Coupon Code?
-Exclusive code: **ACVIP2024** (auto-activated via our link), including:
+Exclusive code: **ACVIP2025** (auto-activated via our link), including:
 
 🔥 **14-Day Premium Trial** - $299/mo Plus plan at $0  
 🔥 **First-Year Discount** - Save up to 42% on annual plans  
