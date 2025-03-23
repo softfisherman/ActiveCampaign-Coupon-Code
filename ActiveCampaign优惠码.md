@@ -1,8 +1,8 @@
-# ActiveCampaign优惠码｜免费试用+高级功能解锁【2024最新】
+# ActiveCampaign优惠码｜免费试用+高级功能解锁【2025最新】
 
 👉 [立即领取优惠码！](https://bit.ly/3NByRBS)
 
-![ActiveCampaign营销自动化工具](https://via.placeholder.com/1200x600)
+![ActiveCampaign营销自动化工具](https://aiwoma.top/PicGo/iShot_2025-03-23_21.51.35.png)
 
 ## 目录
 - [为什么需要ActiveCampaign？](#为什么需要activecampaign)
@@ -82,7 +82,7 @@
 3. **验证邮箱地址** → 立即获得14天Plus权限
 4. **连接数据源** → 同步网站/社交媒体数据
 
-![ActiveCampaign后台界面示例](https://via.placeholder.com/800x400)
+![ActiveCampaign价格方案](https://aiwoma.top/PicGo/iShot_2025-03-23_21.53.06.png)
 
 **高阶技巧**：
 - 使用"模板克隆"功能快速复制成功案例
